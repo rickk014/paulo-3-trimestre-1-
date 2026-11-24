@@ -1,1 +1,0 @@
-# paulo-3-trimestre-1-
